@@ -1,0 +1,1 @@
+# gloria-vita-craft-tech-solution-task2
